@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tpetro83123
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...6435 yteu58 ytryrtyrr56
+- 🌱 I’m currently learning ...6435 yteu58 ytryrtyrr56uu tyru ty
 - 💞️ I’m looking to collaborate on ...hzdf568856 grew agregareg g re gregh y3434y34yy34  fd
 - 📫 How to reach me ...4t34 u56sy45ysr tbdfb rt htrhret jerts y54y  5 ysrth rreer
 48399jer5645 thshtrdzfhhzdsrt gfyuk yte uerutrg weregj ytjytje otyuo
